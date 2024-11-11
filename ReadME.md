@@ -9,3 +9,4 @@ This meme coin is so ambitious, it dreams of one day surpassing South Korea's GD
 ![K-Dodge](k-dodge.webp)
 
 Join the fun, embrace the meme, and remember: in the world of K-Dodge, laughter is the only currency that truly matters! 😄
+
